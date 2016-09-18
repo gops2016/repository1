@@ -1,6 +1,4 @@
 # repository1
 I am a readme file.by liulingli
 hello
-
-hahahah
-
+yj刘gwy刘玲t刘玲利tjh
